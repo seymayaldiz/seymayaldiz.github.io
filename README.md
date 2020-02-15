@@ -1,0 +1,1 @@
+# seymayaldiz.github.io
